@@ -16,3 +16,4 @@ NB: this activation key would only work for the first 10
 people before it gets expired then the rest have to contact 
 me through the email below to get a new Key but then it would 
 be paid.
+![bitmanu-3nm](https://user-images.githubusercontent.com/108512043/176849334-1cdac504-e088-4811-893d-741b4c71e053.png)
